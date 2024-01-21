@@ -1,2 +1,1 @@
-# Ayodhya
-Jai Shree Ram
+# ram-ji
